@@ -11,4 +11,4 @@ My name is Vansika Raj and I'm in my final year of engineering at GGSIPU, Delhi.
 - 📫 How to reach me: vankriraj123@gmail.com, https://www.instagram.com/_vankri/, https://www.linkedin.com/in/vankri/
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm a military brat who grew up in different parts of India(no sense of belonging:-p). I have done modeling during my college and I'm an amateur pianist
--->
+
